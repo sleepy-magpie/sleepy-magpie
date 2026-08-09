@@ -9,11 +9,11 @@
 
 ○ You can call me sleep, magpie or any variations of those
 
-◒ Int is encouraged but sometimes i dont have energy to reciprocate or sometimes im too busy. Most of the time im down to chat tho, especially if we have common interests!!! i don't do rp sorry
+◒ Int is encouraged but sometimes i dont have energy to reciprocate or sometimes im too busy. Most of the time im down to chat tho, especially if we have common interests!!! Cuddle and hide is okay! I don't do rp sorry
 
 If you whispered to me and i didnt respond - most likely i just didnt see it!!
 
-◐ some other things to note: english isnt my first language, i only look for friends and people to chat and i dont appreciate people adding me without at least talking to me first
+◐ some other things to note: english isnt my first language, i only look for friends and people to chat with and i dont appreciate people adding me without at least talking to me first
 
 pls be nice （＞人＜；）
 
