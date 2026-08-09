@@ -18,4 +18,4 @@ pls be nice （＞人＜；）
 
 <img width="735" height="245" alt="image" src="https://github.com/user-attachments/assets/c8833b76-00e8-4e69-a2e2-13499f8b6d15" />
 
-
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=perisicnikola37)
